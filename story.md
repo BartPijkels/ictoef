@@ -14,3 +14,5 @@ The architects were hailed as heroes and were celebrated throughout the kingdom 
 
 They had not only upgraded the ICT architecture of the kingdom but had also helped to usher in a new era of progress and development.
 From that day on, the kingdom became a hub of innovation and progress, with its citizens enjoying the benefits of the new ICT architecture. And the architects continued to work tirelessly, pushing the boundaries of technology to ensure that the kingdom remained at the forefront of progress and development.
+
+Dykang ge bent ne nietsnut
